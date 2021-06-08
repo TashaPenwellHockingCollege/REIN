@@ -35,3 +35,29 @@
 # TO CHECK OUT FOR LISTS
    * propstream.com  use code WREIN1000 
    * clerkdata use code WREIN1000
+
+
+# Private Money Loans
+   * Uses point and interest that can be higher than norm.  These costs are covered if using Golden  formula
+   * "Not what it costs you but what it makes you"
+   * 12 Rules to Follow
+        1.  Only flip properties you purchase using the golden formula, no excuses.  The Golden Formula accounts for maintenance, utilizies, hard money loans, etc.
+        2.  Make it look exactly like the comparable properties - don't fall into mindset of over improving
+        3.  Finding the right contractors.  Never pay the contractor before the work is done.  Purchase materials yourself and pay the contractors weekly based on work done so they can pay their subcontractors.  If the contractor doesn't want to do that don't use them.
+        4.  Get the job done quickly; Private Money Loans are expected to be paid back w/in 6 months.  The Golden Formula takes into account 6 months.  Have a contractor ready to get to work ASAP
+        5.  Find a good realtor and get to the market ASAP
+        6.  Do not the work yourself
+        7.  Stay on top of what is going on
+        8.  What about permits
+        9.  Adding square feet.  Property is priced per square feet
+        10.  Don't go over budget
+        11.  Breaking down the fees (insurance, taxes, etc)
+        12.  Closing costs and realtor fees
+                       * Closing costs are 2% of the purchses price and that's what's paid to the title company
+        13.  The appraiser is coming!  After flipping the property, the buyer adn lender will have an appraiser come by to appraise.  The lender will only pay what the house appraises for.  Compares to other comp property in the area, does not take into consideration vanity metrics.
+                        * Buyer pays for the appraiser ($300 - $500)
+        14.  The home inspector is coming too!  He looks at HVAC, plumbing, foundation, etc.  Do own inspection with contractor and correct before inspector comes in.  Goal is list of things to be repaired adn blemishes to be as short as possible
+        15.  Not all 70 cent deals (from Golden formula) are equal
+
+
+
