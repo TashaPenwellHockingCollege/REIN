@@ -60,4 +60,22 @@
         15.  Not all 70 cent deals (from Golden formula) are equal
 
 
+# Buy and Hold
+1.  RULE 1 - Cash flow / 1% Rule.  Don't focus on what costs you - focus on what it makes you; looking for solid appreciation property meaning in last 10 years the property has doubled in value
+2.  RULE 2 - Appreciation - Apply DATA not speculation; 
 
+
+There are 5 Streams of Wealth Generation in REI the BRRR STRATEGY
+1.  CASH FLOW - how much money is leftover at end of month after bills are paid; short term income
+2.  APPRECIATION - don't speculate; use heat map to identify neighborhoods that have appreciated; older and established neighborhoods; long term wealth strategy; DATA NOT SPECULATION
+3.  LOAN PAY DOWN
+4.  Tax Benefits - Written by the wealthy for the wealthy
+5.  EQUITY GRAB 
+
+
+## How BRRR Strategy Works
+B - Buy
+R - Renovate
+R - Rent-
+R - Refinance DSCR loans??  designed for rental properties
+R - Repeat
