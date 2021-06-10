@@ -79,3 +79,13 @@ R - Renovate
 R - Rent-
 R - Refinance DSCR loans??  designed for rental properties
 R - Repeat
+
+
+
+# DAY 4
+
+ * Deed = Title
+ * Promisarry Note = outlines terms of loan
+ * Seller financing:  Finance home according to the terms you agreed upon.  
+
+ * If they still owe more on house than offer, can offer to take over the payments.  You don't have to get a loan or anything - jsut go to title office and sign deed over and take over the promissary note
