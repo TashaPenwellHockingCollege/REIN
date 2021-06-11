@@ -89,3 +89,30 @@ R - Repeat
  * Seller financing:  Finance home according to the terms you agreed upon.  
 
  * If they still owe more on house than offer, can offer to take over the payments.  You don't have to get a loan or anything - jsut go to title office and sign deed over and take over the promissary note
+
+# DAY 5
+
+5 STREAMS OF WEALTH GENERATION
+        1.  Monthly Cash Flow
+        2.  Apprecation:  increase of prop value over time
+        3.  Loan paydown:  process of reducing the amount owed on a loan over time by making payments towards the debt
+        4.  Tax Benefits:   Ability to deduct certain expenses related to investment property and fees
+        5.  Equity Grab:  difference between current value of property and the money you owe on the property
+        
+SHORT TERM RENTALS (STR)
+        Examples include furnished home, apartment, etc that is rented for short period of time alternative to a hotel  (AirBnB, VRBO, etc)
+        Things to know.
+                1.  some cities have banned STR, check w/ them first
+                2.  Location matters
+                3.  Make sure it meets the 1% Rule (1% of the ARV)
+                                Example:  ARV is $150,000, you should be able to rent it out at $1500 per month
+        Monthly Costs
+                * Prop mangement 
+                * monthly mortgage payments
+                * insurance
+                * utilizies
+                * cable
+                * wifi
+                * yard/pool
+                * housekeeping
+                * linens and toiletries restocking
